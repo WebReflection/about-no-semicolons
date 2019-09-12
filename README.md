@@ -8,7 +8,7 @@ Since it feels good to be proven right after years of rants regarding a specific
 
 - - -
 
-<sup>Original Photo by [James Healy](https://unsplash.com/@essentialprints?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText) on [Unsplash](https://unsplash.com/search/photos/black-poster?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText)</sup>
+Original Photo by [James Healy](https://unsplash.com/@essentialprints?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText) on [Unsplash](https://unsplash.com/search/photos/black-poster?utm_source=unsplash&utm_medium=referral&utm_content=creditCopyText)
 
 - - -
 
